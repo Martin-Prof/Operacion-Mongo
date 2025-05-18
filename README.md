@@ -8,7 +8,7 @@ El sol caía sobre las pistas de tenis 🎾 de la zona deportiva de Carranque, d
 ---
 
 ## 🚔 La Policía Local Está Desbordada
-Las cámaras de seguridad 📹 captaron sombras sospechosas 👤 merodeando la zona y una furgoneta sin matrícula 🚐, pero ningún secuestrador ha reclamado responsabilidad. **⏰ El tiempo apremia**: si Alcaraz no aparece antes de **6 horas** ⏳, la final se cancelará, perderá el *Málaga Open*, no podrá ser número 1 y su seguridad correrá grave peligro. 💥
+Las cámaras de seguridad 📹 captaron sombras sospechosas 👤 merodeando la zona y una furgoneta sin matrícula 🚐, pero ningún secuestrador ha reclamado responsabilidad. **⏰ El tiempo apremia**: si Alcaraz no aparece antes de **45 minutos** ⏳, la final se cancelará, perderá el *Málaga Open*, no podrá ser número 1 y su seguridad correrá grave peligro. 💥
 
 ---
 
@@ -19,7 +19,7 @@ Un equipo de élite de informáticos 🧑💻 (vosotros) ha sido reclutado para 
 - 🕵️♂️ ¿Quién ha secuestrado a Carlos?   
 - 🧠 ¿Por qué lo han hecho? 🎾  
 - 🌐 Descubrir donde esta Carlos.
-- 🧩**RESCATAR A CARLOS**
+- 🧩 Registrar las pruebas que evidencian las conclusiones
 
 ¿Lograréis seguir el rastro de su GPS 🛑? ¿Descifraréis el caso antes de que el reloj llegue a cero? ⏲️💣
 
