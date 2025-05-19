@@ -3,7 +3,7 @@
 
 # 🚨🔍 *¡Alerta en Carranque: El Reloj Comienza a Correr!* 🎾⏳
 
-El sol caía sobre las pistas de tenis 🎾 de la zona deportiva de Carranque, donde hace apenas 24 horas, **Carlos Alcaraz** 🌟, la estrella ascendente del tenis mundial, entrenaba con furia para la final del *Málaga Open* contra Djokovic. Pero ahora… solo quedan rastros de su presencia: una raqueta abandonada 🎾 y una botella de agua medio vacía 💧. ¡Ha desaparecido sin dejar rastro! ❓
+El sol salía sobre las pistas de tenis 🎾 de la zona deportiva de Carranque, donde hace apenas 8 horas, **Carlos Alcaraz** 🌟, la estrella ascendente del tenis mundial, entrenaba con furia para la final del *Málaga Open* contra Djokovic. Pero ahora… solo quedan rastros de su presencia: una raqueta abandonada 🎾 y una botella de agua medio vacía 💧. ¡Ha desaparecido sin dejar rastro! ❓
 
 ---
 
